@@ -1,1 +1,1 @@
-<p align='center'> sodo - he they it </br> sixteen , SFW age+pet regressor || DID system</br></br> art commissions open! ask for discord ^_^ </p>
+<p align='center'> chip - he they it </br> sixteen , DID system</br></br> ask for discord if we've interacted before ^_^ </p>
